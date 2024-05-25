@@ -1,16 +1,17 @@
 <p align="center">
 
+<img src="https://files.catbox.moe/8b3muv.webp"/>
 
 </p>
 
 <p align="center">
-,◜<img src="https://files.catbox.moe/8b3muv.webp"/> Kazu . Mello 
+,◜<img src="https://files.catbox.moe/69tax4.gif"/> Kazu . Mello 
 </br>
-†𝅄 — he him <img src="https://files.catbox.moe/miodgz.gif"/>
+†𝅄 — he him <img src="https://files.catbox.moe/69tax4.gif"/>
 </p>
 <div align="center">
 
-$\text{\color{#a61e1e}{more in rentry}}$
+$\text{\color{#4f7562}{more in rentry}}$
 </div>
 
 ***
